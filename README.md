@@ -1,6 +1,7 @@
+![Aspiring Technical Undergraduate from the land of Kolkata 🫳🫴](https://media.licdn.com/dms/image/C4E16AQHFVL0jvqWbUQ/profile-displaybackgroundimage-shrink_350_1400/0/1657745768871?e=1711584000&v=beta&t=dOxDMkEDkPIe5Kxhg_dip71BOIMSGDxupsa0qlz8CVw)
+
 ### Hi there ✊, my name is Biswajit
 #### Aspiring Technical Undergraduate from the land of Kolkata 🫳🫴
-![Aspiring Technical Undergraduate from the land of Kolkata 🫳🫴]([https://media.licdn.com/dms/image/C4E16AQHFVL0jvqWbUQ/profile-displaybackgroundimage-shrink_350_1400/0/1657745768871?e=1711584000&v=beta&t=dOxDMkEDkPIe5Kxhg_dip71BOIMSGDxupsa0qlz8CVw](https://github.com/biswajitdashh/biswajitdashh/blob/main/1657745768871.jpeg))
 
 I enjoy working on any sort of task at hand, with Python and its related areas my real forte. I like to do a bit of everything(in life as well) name it.
 
