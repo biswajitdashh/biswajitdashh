@@ -1,21 +1,21 @@
 ![Aspiring Technical Undergraduate from the land of Kolkata 🫳🫴](https://media.licdn.com/dms/image/C4E16AQHFVL0jvqWbUQ/profile-displaybackgroundimage-shrink_350_1400/0/1657745768871?e=1711584000&v=beta&t=dOxDMkEDkPIe5Kxhg_dip71BOIMSGDxupsa0qlz8CVw)
 
-<h1 align="center">Hi ✊, I'm Biswajit</h1>
-<h3 align="center">Aspiring Technical Undergraduate from the land of Kolkata 🫳🫴</h3>
+<h1 align="center">Hi there ✊, I'm Biswajit</h1>
+<h3 align="center">Engineering Graduate from Kolkata 🫳🫴</h3>
 
-- 🔭 I’m currently working on **myself and a bit about CNN as well.**
+- 🔭 I’m currently working on **learning NLP from the barebones🦴**
 
-- 🌱 I’m currently learning **Python and Deep Learning be used to improve foot traffic and sales for departmental stores.**
+- 🌱 I’m currently learning **on how to improve on what I am currently working on**
 
-- 👯 I’m looking to collaborate on **Data Science and ML.**
+- 👯 I’m looking to collaborate on **AI and Back-end development.**
 
-- 🤝 I’m looking for help with **Github Profile as appealing as possible.**
+- 🤝 I’m looking for help with **optimizing my AI learnings?**
 
-- 💬 Ask me about **football is the best place to ever exist on this planet.**
+- 💬 Ask me if **football is the thing to ever exist on this planet**
 
 - 📫 How to reach me **biswajitdash404@gmail.com**
 
-- 📄 Know about my experiences [[[https://drive.google.com/file/d/16L1RbQDUDTmxO6iR_NS-Lh6-lHZORQOA/view?usp=drive_link](https://drive.google.com/file/d/16L1RbQDUDTmxO6iR_NS-Lh6-lHZORQOA/view?usp=drive_link)](https://drive.google.com/file/d/1NK9Wfr1XOWX514lveiDByz3Dhovyroeo/view?usp=drive_link)](https://drive.google.com/file/d/1jBgTz85ULyXevrIzha2j0VsN_rlbckvA/view?usp=sharing)
+- 📄 Know about my experiences [[[https://drive.google.com/file/d/16L1RbQDUDTmxO6iR_NS-Lh6-lHZORQOA/view?usp=drive_link]([https://drive.google.com/file/d/16L1RbQDUDTmxO6iR_NS-Lh6-lHZORQOA/view?usp=drive_link](https://drive.google.com/file/d/1Y6zEjptWAl9CT3QjSmWD7u5NLaC3F69Y/view))](https://drive.google.com/file/d/1NK9Wfr1XOWX514lveiDByz3Dhovyroeo/view?usp=drive_link)](https://drive.google.com/file/d/1jBgTz85ULyXevrIzha2j0VsN_rlbckvA/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
