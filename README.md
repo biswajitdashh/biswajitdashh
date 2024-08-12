@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **biswajitdash404@gmail.com**
 
-- 📄 Know about my experiences [[[https://drive.google.com/file/d/16L1RbQDUDTmxO6iR_NS-Lh6-lHZORQOA/view?usp=drive_link]([https://drive.google.com/file/d/16L1RbQDUDTmxO6iR_NS-Lh6-lHZORQOA/view?usp=drive_link](https://drive.google.com/file/d/1Y6zEjptWAl9CT3QjSmWD7u5NLaC3F69Y/view))](https://drive.google.com/file/d/1NK9Wfr1XOWX514lveiDByz3Dhovyroeo/view?usp=drive_link)](https://drive.google.com/file/d/1jBgTz85ULyXevrIzha2j0VsN_rlbckvA/view?usp=sharing)
+- 📄 Know about my experiences [[[https://drive.google.com/file/d/16L1RbQDUDTmxO6iR_NS-Lh6-lHZORQOA/view?usp=drive_link]([https://drive.google.com/file/d/16L1RbQDUDTmxO6iR_NS-Lh6-lHZORQOA/view?usp=drive_link](https://drive.google.com/file/d/1Y6zEjptWAl9CT3QjSmWD7u5NLaC3F69Y/view))]]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
