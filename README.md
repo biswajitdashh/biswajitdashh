@@ -1,4 +1,4 @@
-![Aspiring Technical Undergraduate from the land of Kolkata 🫳🫴](https://media.licdn.com/dms/image/C4E16AQHFVL0jvqWbUQ/profile-displaybackgroundimage-shrink_350_1400/0/1657745768871?e=1711584000&v=beta&t=dOxDMkEDkPIe5Kxhg_dip71BOIMSGDxupsa0qlz8CVw)
+[![Aspiring Technical Undergraduate from the land of Kolkata 🫳🫴](https://media.licdn.com/dms/image/C4E16AQHFVL0jvqWbUQ/profile-displaybackgroundimage-shrink_350_1400/0/1657745768871?e=1711584000&v=beta&t=dOxDMkEDkPIe5Kxhg_dip71BOIMSGDxupsa0qlz8CVw)](https://drive.google.com/file/d/1Y6zEjptWAl9CT3QjSmWD7u5NLaC3F69Y/view)
 
 <h1 align="center">Hi there ✊, I'm Biswajit</h1>
 <h3 align="center">Engineering Graduate from Kolkata 🫳🫴</h3>
