@@ -1,7 +1,4 @@
-(./1657745768871.jpeg)
-
-
-
+![A really basic monochromatic picture of rocks on a beach(except i clicked it ;))](./1657745768871.jpeg)
 <h1 align="center">Hi there ✊, I'm Biswajit</h1>
 <h3 align="center">Engineering Graduate from Kolkata 🫳🫴</h3>
 
