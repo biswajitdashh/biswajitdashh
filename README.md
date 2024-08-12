@@ -1,4 +1,4 @@
-![Aspiring Technical Undergraduate from the land of Kolkata 🫳🫴](./1657745768871.jpeg)
+(./1657745768871.jpeg)
 
 
 
