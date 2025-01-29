@@ -10,7 +10,7 @@
 
 - 🤝 I’m looking for help with **optimizing my AI learnings?**
 
-- 💬 Ask me if **football is the thing to ever exist on this planet**
+- 💬 Ask me if **football is the best thing to ever exist on this planet**
 
 - 📫 How to reach me **biswajitdash404@gmail.com**
 
